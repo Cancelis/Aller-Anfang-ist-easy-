@@ -1,2 +1,0 @@
-# Aller-Anfang-ist-easy-
-
